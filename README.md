@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Barbie-502
+- Hi, I’m @Barbie-502
 - tôi ít kinh nghiệm trong chuyện tình cảm.
 - tôi sợ tôi làm không tốt 
 - khiến cậu cảm thấy tình yêu cũng chỉ có vậy🥺
